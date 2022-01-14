@@ -1,2 +1,2 @@
 # rick-roller
-get rick roller
+get rick rolled ;)
